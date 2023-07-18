@@ -31,7 +31,7 @@ Entre otras herramientas, también tengo conocimiento en Figma para el diseño v
 No dudes en contactarme!
 Juntos podemos realizar un gran proyecto que cambie la vida de miles de personas
 
-[Linkedin](https://www.linkedin.com/in/clay-martinez)https://www.linkedin.com/in/clay-martinez
+
 ![image](https://github.com/claymartinez/claymartinez/assets/110847258/ed074ce3-db93-4bcb-b355-5929ac62b8c1)
 
 
